@@ -1,3 +1,3 @@
-Hi, I’m @S0UL-E4T3R,
+Hi,
 
-I’m interested in Games, Music (Metal/Rock) and nerd stuff.
+I’m @S0UL-E4T3R and I’m interested in Games, Music (Metal/Rock) and nerd stuff.
